@@ -1,4 +1,4 @@
-#  
+#  vip escape waves for lucky blocks Scripts is the best escape waves for lucky blocks Script, featuring instant win and auto-sell. Safe and powerful
 
 
 
